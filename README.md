@@ -7,4 +7,4 @@ I'm in progressive
 I find the way how to become my self
 
 I'm who I am.
-Yeah!!!
+Yeah
